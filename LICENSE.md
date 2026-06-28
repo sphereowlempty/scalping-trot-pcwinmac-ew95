@@ -1,4 +1,4 @@
-# 
+# Professional scalping trading bot plugins for Mac OS | VIP scalping trading bot plugins for PC Windows. Featuring decentralized exchange api and centralized exchange api — optimized for maximum performance.
 
 
 
